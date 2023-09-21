@@ -2,7 +2,7 @@
 PortFolio
 
 2022 국립 강릉원주대학교 학생 홍보대사 하랑 컨텐츠교육 우수작품
-Edit / Thumbnail Design ( 2022.08.29 )
+\nEdit / Thumbnail Design ( 2022.08.29 )
 ![image](https://github.com/CSHJ0711/GWNU_Harang/assets/99818847/6a8d4c08-6bce-4fe0-8a08-823a0935ad2a)
 https://youtu.be/z8SvoMYqkk8
 
