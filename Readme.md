@@ -37,3 +37,18 @@ https://youtube.com/shorts/9HPpDMLtRLY
 </br> Shoot / Edit ( 2023.08.28 )
 ![image](https://github.com/CSHJ0711/GWNU_Harang/assets/99818847/e44e9bf8-3cc7-499a-ab48-eb2eaaf3e523)
 https://youtu.be/zJhMhlLRN7c
+
+국립강릉원주대학교 홍보대사 하랑 프로필 촬영 & 콘텐츠제작교육 모음.zip
+</br> Shoot / Edit ( 2023.12.22 )
+![image](https://github.com/CSHJ0711/GWNU_Harang/assets/99818847/e25dd23b-fc08-44ae-b9c4-f48afd574e94)
+https://youtu.be/8KpA1odUMUw
+
+하늘에서 본 강릉원주대🚁 (원주캠퍼스) [4K]
+</br> Shoot / Edit / Thumbnail Design ( 2024.01.17 )
+![image](https://github.com/CSHJ0711/GWNU_Harang/assets/99818847/b145a672-accb-47b5-a563-03a11b429e88)
+https://youtu.be/jV41n2wb-q0
+
+국립강릉원주대 새로워진 학생식당🍚, 홍보대사 하랑이 소개해줄게!
+</br> Shoot / Edit (2024.01.17 )
+![image](https://github.com/CSHJ0711/GWNU_Harang/assets/99818847/dcc27597-565f-4df2-8f8f-c36ad36dae84)
+https://youtu.be/TdvSCspEATs
