@@ -52,3 +52,8 @@ https://youtu.be/jV41n2wb-q0
 </br> Shoot / Edit (2024.01.17 )
 ![image](https://github.com/CSHJ0711/GWNU_Harang/assets/99818847/dcc27597-565f-4df2-8f8f-c36ad36dae84)
 https://youtu.be/TdvSCspEATs
+
+국립강릉원주대학교 대학생 문화공연 연습공간&카페테리아 소개영상
+</br> Shoot (2024.4.22 )
+![image](https://github.com/user-attachments/assets/bc838a9e-20ed-4471-8649-31d2c1d16bbe)
+https://youtu.be/HrSj7Au7ruQ?si=Ykz4b4_cy_Pa-Cem
